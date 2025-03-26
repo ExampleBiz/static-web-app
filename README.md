@@ -1,1 +1,1 @@
-# static-web-app
+LandlordingSkool.com is awesome!
