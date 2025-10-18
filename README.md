@@ -1,1 +1,2 @@
-LandlordingSkool.com is awesome!
+LandlordSkool.com is awesome!!
+A FREE DIY LANDLORD COMMUNITY!
